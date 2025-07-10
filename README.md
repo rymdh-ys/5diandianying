@@ -5,7 +5,7 @@
 5点电影的界面简洁，操作方便，用户可以轻松地搜索和选择自己感兴趣的影视作品。无论是通过电脑、手机还是平板等设备，用户都可以随时随地享受观影的乐趣。该网站还承诺无广告弹窗，进一步提升了用户的观影体验。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/17007.html" target="_blank" ><strong>5点电影最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshi" target="_blank" ><strong>影视在线看</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
